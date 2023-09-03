@@ -1,1 +1,0 @@
-okkadu vunnadu take care
